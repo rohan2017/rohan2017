@@ -5,3 +5,4 @@ My name is Rohan Bandaru and I am a junior at Lexington High School. I am very i
 - 😄 Pronouns: he/him
 
 Recruiters/Admissions look here: https://rohan2017.github.io/rohanbandaru/
+🇺🇦 Fight like hell 🇺🇦

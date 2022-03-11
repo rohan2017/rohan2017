@@ -6,4 +6,4 @@ My name is Rohan Bandaru and I am a junior at Lexington High School. I am very i
 
 Recruiters/Admissions look here: https://rohan2017.github.io/rohanbandaru/
 
-🇺🇦 Fight like hell 🇺🇦
+🇺🇦 Fight like hell 🟦🟨
